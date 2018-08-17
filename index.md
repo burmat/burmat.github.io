@@ -1,5 +1,0 @@
----
-Home
----
-
-## burmat / nathan burchfield
